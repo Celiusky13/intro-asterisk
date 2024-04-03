@@ -1,7 +1,7 @@
 ﻿
 ![](Aspose.Words.877262c2-3961-45af-81eb-d087ddba036d.001.png)
 
-![Diagrama
+
 
 Descripción generada automáticamente](Aspose.Words.877262c2-3961-45af-81eb-d087ddba036d.002.jpeg)
 
